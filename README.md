@@ -38,6 +38,13 @@ push도 얼마든지 받습니다.
   - [https://place.map.kakao.com/434452447](https://place.map.kakao.com/434452447)
   - @hexists
 
+- 광교 오이탈리안(광교 아브뉴프랑 1층)
+  - 파스타 맛집, 가격대도 적당하고 맛도 있음, 식사중에는 빵을 계속 제공해주는데 빵도 맛있음
+  - [http://blog.naver.com/PostView.nhn?blogId=chaevely_tv&logNo=221767710973](http://blog.naver.com/PostView.nhn?blogId=chaevely_tv&logNo=221767710973)
+  - [https://place.map.kakao.com/1550048150](https://place.map.kakao.com/1550048150)
+  - @hexists
+
+
 ## 카페
 
 ## 놀만한 곳

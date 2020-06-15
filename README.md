@@ -44,8 +44,23 @@ push도 얼마든지 받습니다.
   - [https://place.map.kakao.com/1550048150](https://place.map.kakao.com/1550048150)
   - @hexists
 
+- 수지 호천당(성복동)
+  - 돈까스, 소바, 카레 다 맛있음
+  - 돈까스는 매우 부드럽고, 카레와 소바는 직접 만든다고 하는데 맛있음
+  - [https://blog.naver.com/s__ooo/221960832759](https://blog.naver.com/s__ooo/221960832759)
+  - [https://place.map.kakao.com/2136085442](https://place.map.kakao.com/2136085442)
+  - @hexists
+
+- 수지 노이(신봉동)
+  - 베트남 식당, 쌀국수 맛있음, 하노이에서 먹었던 그 맛인것 같기도?
+  - 곱창 쌀국수 맛집 같은데, 그건 안 먹어봐서... 잘 모르겠음
+  - [https://blog.naver.com/jspl114?Redirect=Log&logNo=221845395752](https://blog.naver.com/jspl114?Redirect=Log&logNo=221845395752)
+  - [https://place.map.kakao.com/972049247](https://place.map.kakao.com/972049247)
+  - @hexists
+
 
 ## 카페
+
 
 ## 놀만한 곳
 
